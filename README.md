@@ -1,2 +1,2 @@
-2d animator
-@t2_t2_t2_t2_t2 on instagram
+- 2d animator
+- @t2_t2_t2_t2_t2 on instagram
